@@ -2,7 +2,7 @@
 
 ## Session 1: Friday March 20, 6-9PM (Safety & Theory)
 - Mentorship Overview & Objectives  
-- Safety & Shop Rules  
+- Safety & CCWC Shop Rules  
 - Basic Finishing Theory  
 
 ## Session 2: Saturday March 21, 6-9PM (Stains & Sealers)

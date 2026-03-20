@@ -68,6 +68,7 @@
 - Outside place to lay applicators to dry, or waterproof metal container that can be sealed
 - Way to store extra finish or to store finish if the original container fails
 - Adequate ventilation
+- Bucket of sand (for fire-fighting)
 
 #### CCWC Shop Rules Around Finishing
 - **Only** waterborne or non-solvent-based and non-penetrating oils and waxes may be used in the shop; solvent-based finishes and penetrating oils can be used outside in appropriate weather so long as proper disposal of applicators is ensured (seal in plastic bag with water and no air, then place in garbage OR lay flat to dry completely outdoors)
